@@ -7,7 +7,7 @@ Here are some of my all-time favorite **series** and **movies**, each with its u
 
 ---
 
-## Series 📺
+## Series
 
 ### 1. *Dr. House*
 - **Genre**: Medical drama, Comedy-drama
